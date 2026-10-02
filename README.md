@@ -6,6 +6,6 @@ Once you download the zip, place it in your minecraft saves folder and unzip it
 
 Youtube chanel: https://youtube.com/@frigidraccoon
 
-If you share this project plesase credit me!
+If you share this project please credit me!
 
 DO NOT claim this as your own work.
